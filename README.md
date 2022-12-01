@@ -1,1 +1,1 @@
-# REPO :Szymon/Kubiak
+# REPO :Szymon/Kubiak# politechnika
